@@ -4,3 +4,5 @@ Di sini semuanya berbeda, inilah semesta bagi mereka yang mendapati setiap pagin
 =
 Tidak ada yang lengkap tanpa senyuman yang terbersit saat setiap orang berbahagia.
 =
+Orang-orang dan kegembiraannya saat matahari terbit.
+=
