@@ -9,5 +9,5 @@ Di sana warna-warna keceriaan suatu alat untuk hal-hal indah dan menyenangkan.
 
 Orang-orang dan kegembiraannya saat matahari terbit.
 
-Amstervladic, di masa penuh kejayaannya Jagedzad. Kaum yang menamakan dirinya Generad, di antara bangsa-bangsa lainnya di planet asing selama ribuan tahun mereka tempati. Namaku Aigio, seorang petugas keamanan kota.
+Amstervladic, di masa penuh kejayaannya Jagedzad. Kaum yang menamakan dirinya Generad, di antara bangsa-bangsa lainnya di planet asing selama ribuan tahun mereka tempati. Namaku Aken, seorang petugas keamanan kota. Nene Yoshita adalah senior di satuan tugas 
 
