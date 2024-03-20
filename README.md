@@ -9,7 +9,11 @@ Di sana warna-warna keceriaan suatu alat untuk hal-hal indah dan menyenangkan.
 
 Orang-orang dan kegembiraannya saat matahari terbit.
 
-Amstervladic, di masa penuh kejayaannya Jagedzad. Kaum yang menamakan dirinya Generad, di antara bangsa-bangsa lainnya di planet asing selama ribuan tahun mereka tempati. Namaku Aken, seorang petugas keamanan kota. Nene Yoshita adalah senior di satuan tugas yang bertanggungjawab semua petugas.
+Amstervladic Intercontinence atau Am Intercont, wilayah yang di masa penuh kejayaannya hidup para  makhluk raksasa bernama lain Jagedzad. Kaum yang menamakan dirinya lama sekali Generad, Jagedzad sebutan negara tetangga mereka yang tubuh para penghuninya tidak seluar biasa para Jagedzad. Ada di antara bangsa-bangsa lainnya di planet asing selama ribuan tahun mereka tempati. 
+
+Namaku Aken, seorang petugas keamanan kota Dilinge Akra, di pusat wilayah Am Intercon. di negara yang menjadi pusat wilayah. Inocen diperintah Rakakil. 
+
+Nene Yoshita adalah senior di satuan tugas yang bertanggungjawab semua petugas.
 
 
 
